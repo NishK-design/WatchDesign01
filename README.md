@@ -58,6 +58,7 @@ Parts required -
 2-4 Miniature bearings (1x3x1 nm)
 2 Dial feet
 1 Dial spacer
+1 Water resistant valve
 
 
 
