@@ -61,6 +61,13 @@ Parts required -
 1 Water resistant valve
 
 
+Possible Designs:
+
+Batman Vengeance
+Freedom Fighters
+
+
+
 
 
 
